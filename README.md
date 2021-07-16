@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Idhant297
+- 👋 Hi, I’m @Idhant297 (https://linktr.ee/idhantgulati)
 - 👀 I’m interested in computer sciences, graphic designing, cinematography(mainly videograpgy & post-production)
 - 💡 I’m currently in grade 11 (PCM/Science) (CBSE, India) and also going to python soon, I am also learning Adobe Illustrator CC, Adobe Photoshop CC & Adobe Premiere Pro CC
 - 📫 You can reach me via dropping a mail to me on idhant.gulati@gmail.com
